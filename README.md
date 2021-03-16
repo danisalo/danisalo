@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @danisalo, and I'm actually a Graphic Designer
+- 🌱 I’m currently learning
+- 📫 Reach me at IG @dsalomo8 *website coming soon*
