@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @danisalo, I'm actually a Graphic Designer
 - 🌱 Currently learning
-- 📫 Reach me at IG @dsalomo8 *website coming soon*
+- 📫 Reach me at contact@danielsalomonm.com
